@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pgubser
 - 👀 I’m interested in interestings stuff
 - 🌱 I’m currently learning life
-- 💞️ I’m looking to collaborate on CROS
+- 💞️ I’m looking to summer evenings and swimming in the lake
 - 📫 How to reach me ?
 
 <!---
